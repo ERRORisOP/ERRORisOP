@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ERRORisOP
-- 👀 I’m interested in fivem server developer
+- 👀 I’m interested in fivem server developing
 - 🌱 I’m currently learning new thingss
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me †ERROR™#0001
